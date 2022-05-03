@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @JIFswe
 - 👀 I’m interested in upgrading living conditions
-- 🌱 I’m currently learning social live of our young ones
 - 💞️ I’m looking to collaborate on helping local communities create activites to our future leaders.
